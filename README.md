@@ -16,7 +16,7 @@
 6. Дэниэл Крейг (2006–2021)
 
 ## Фото
-![Джеймс Бонд](https://static.wikia.nocookie.net/jamesbond/images/8/81/James_Bond_%28Daniel_Craig%29_-_Profile.jpg/revision/latest?cb=20220103100438)  
+![Джеймс Бонд](JB.jpg)  
 *Дэниэл Крейг в роли Бонда, "Казино Рояль" (2006)*
 
 > "Меня зовут Бонд. Джеймс Бонд."
